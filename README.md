@@ -8,7 +8,7 @@ Please Do Not Claim This Is Your Method.
 
 Join These Loving  Community Servers Below
 
-https://discord.gg/8rgYjWDNka            (My Friend Cyber's Server)
-https://discord.gg/aVtPcbRWm9            (My Server)
+https://discord.gg/8rgYjWDNka (My Friend Cyber's Server)
+https://discord.gg/aVtPcbRWm9 (My Server)
 
 Enjoy, Sincerely Pvs :)
